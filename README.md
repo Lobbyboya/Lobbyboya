@@ -21,6 +21,7 @@ Passei cerca de 8 anos no varejo cuidando da gestão administrativa e da adminis
 
 ## Contato
 
+- LinkedIn: [linkedin.com/in/renanleitao-ti](https://www.linkedin.com/in/renanleitao-ti/)
 - E-mail: joserenanleitao@gmail.com
 
 ---
